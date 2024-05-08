@@ -22,7 +22,7 @@ Ready to make a difference in the environment? Unfortunately, EPUM is purely fic
 ![EPUM Activities Image](https://s4.aconvert.com/convert/p3r68-cdx67/anw6r-fuew3.jpg)
 
 ## 📱 Contact
-This website is purely hypothetical, but if you have any questions or feedback about the concept, feel free to reach out to us at epum@example.com. We appreciate your interest!
+This website is purely hypothetical, but if you have any questions or feedback about the concept, feel free to reach out to me at kadiryazadzhi@gmail.com. We appreciate your interest!
 
 Join EPUM and be part of a simulated movement for a greener and more sustainable future. 🌿
 
