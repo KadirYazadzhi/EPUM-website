@@ -19,7 +19,7 @@ EPUM is a fictional website created for educational purposes, designed to showca
 ## 🌍 Get Involved
 Ready to make a difference in the environment? Unfortunately, EPUM is purely fictional and not operational. However, you can get involved in real-world environmental organizations and initiatives in your community to make a positive impact.
 
-![EPUM Activities Image](https://s4.aconvert.com/convert/p3r68-cdx67/anw6r-fuew3.jpg)
+![EPUM Activities Image](preview-github.png)
 
 ## 📱 Contact
 This website is purely hypothetical, but if you have any questions or feedback about the concept, feel free to reach out to me at kadiryazadzhi@gmail.com. We appreciate your interest!
